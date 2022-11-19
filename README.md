@@ -1,6 +1,6 @@
 # Hi!!! My name is Tatsiana 👋
 
-### 📱 📧 Conect with me:
+### 📱 📧 Connect with me:
 
 Telegram: @TatsianaKurachova <br>
 e-mail: tatsiana06031992@gmail.com
